@@ -71,4 +71,4 @@ This research demonstrated that **diversity can be successfully incorporated int
 
 ---
 
-For further inquiries or collaboration, please contact the author.
+For further inquiries or collaboration, please contact me.
